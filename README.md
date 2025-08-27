@@ -1,2 +1,0 @@
-# svotom.github.io
-
